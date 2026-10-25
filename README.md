@@ -1,1 +1,1 @@
-# -btc-direction-lab
+https://chatgpt.com/library/share/libfile_36d04ebd86c48191aebaa3b62f62b0fd?account_id=personal
